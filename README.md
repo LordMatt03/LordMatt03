@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LordMatt03
+- 👀 I’m interested in: AI,LEARN NEW THINGS,STUDY,BIBLE,MOVIES,DEEP WORK,READ,DEV,FULL STACK,PROGAMING ETC...
+- 🌱 I’m currently learning: ALL THING THAT YOU CAN IMAGINE
+- 💞️ I’m looking to collaborate on: BUSINESS AND THE KINGDOM OF GOD
+- 📫 How to reach me: INSTAGRAM:matheuss03033.   
+- 😄 Pronouns: TETEU
+- ⚡ Fun fact: IM SO KIND :)
